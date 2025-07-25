@@ -1,1 +1,0 @@
-# caracteristicas-CMg6p9o
